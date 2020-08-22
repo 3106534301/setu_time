@@ -1,7 +1,7 @@
-<p><strong>一个儒雅随和的涩图姬，日常在QQ空间评论区ghs(干好事)，欢迎添加我的QQ。</br>打不开挂vpn后刷新页面</strong></p>
+<p><strong>一个儒雅随和的涩图姬，日常在QQ空间评论区ghs(干好事)，欢迎添加我的QQ。如果打不开请连接vpn后刷新页面</strong></p>
 <div align="center"><img src="https://wx3.sinaimg.cn/large/0089Y8wTly1ghh92f25olg303h02ut8z.gif" height="102" width="125"/>
 <p><a href="https://qm.qq.com/cgi-bin/qm/qr?k=m_LgW6KgED1aHePiscfi4DAD6KxDqSjy&no
-" rel="nofollow">&nbsp添加真人篇QQ</a>&nbsp&nbsp | &nbsp&nbsp;<a href="https://qm.qq.com/cgi-bin/qm/qr?k=VHVfncJChRrSp_NGJrlJNgYpoaZ9ukMV"rel="nofollow">添加动漫篇QQ</a><br/><br><a href="http://dwz.date/bWEk">福利软件合集</a> &nbsp&nbsp&nbsp|&nbsp&nbsp;&nbsp<a href="http://dwz.date/bWE8">查看往期合集</a></p></div>
+" rel="nofollow">添加真人篇QQ</a> | <a href="https://qm.qq.com/cgi-bin/qm/qr?k=VHVfncJChRrSp_NGJrlJNgYpoaZ9ukMV"rel="nofollow">添加动漫篇QQ</a><br/><br><a href="http://dwz.date/bWEk">福利软件合集</a>|<a href="http://dwz.date/bWE8">查看往期合集</a></p></div>
 
 <img src="https://upload.cc/i1/2020/08/21/FvShEO.jpeg" />
 <img src="https://upload.cc/i1/2020/08/21/x8UM9D.png" />
